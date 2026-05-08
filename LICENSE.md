@@ -1,4 +1,4 @@
-
+aura ascension Scripts updated is the best aura ascension Script, featuring custom skins and one-hit kill. Safe and powerful for all your needs.
 
 
 
